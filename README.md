@@ -1,0 +1,2 @@
+# rulettaktikleri
+RULET TAKTİKLERİ ♦️ KAZANMANIN SIRLARINI KEŞFET
